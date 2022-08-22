@@ -24,7 +24,7 @@ Selling everything included in the table below => perfect for people starting pp
 ## Price Breakdown
 | Item | Price  |
 |------|--------|
-| **Total Value** | **$9250**  including ~$800 worth of extras |
+| **Total Value** | **$9550**  including ~$1000 worth of extras |
 | **Depreciation** | **-$3000ish?** |
 | **Sell Price** | **$6kk ish? Open to negotiation** |
 
@@ -51,11 +51,11 @@ Selling everything included in the table below => perfect for people starting pp
 | [LED Battery Power Bank](https://www.amazon.com/dp/B00ME3ZH7C/) | $35 |
 | [LED Switches](https://www.amazon.com/gp/product/B011U1NU90/) | $5 |
 | [Arduino Nano](https://www.amazon.com/gp/product/B0713XK923/) | $5 |
-| **--- Additional Parts ---** |-|
+| **--- Extras ---** |-|
 | DIY Transport Hitch - can just include the wood cutout for you to place on your own metal frame | $100 |
 | [Fuel Jug 6 gallon](https://www.amazon.com/dp/B084BTSMY8) | $50 |
 | [Motul 800 Oil](https://www.amazon.com/gp/product/B00I5WHZA8) | $60 |
 | [Mixing Bottle](https://www.amazon.com/gp/product/B0012TZ2CE) | $10 |
 | [Hose Bender](https://www.amazon.com/gp/product/B07ZY86LP2/) | $5 |
 | [Lipo Charger (imax b6ac)](https://www.amazon.com/dp/B07568DSCP) - Can sell without | $45 |
-
+| Aspen Gradient II 22m Wing For Kiting | $300 |
