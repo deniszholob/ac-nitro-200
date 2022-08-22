@@ -26,7 +26,7 @@ Selling everything included in the table below => perfect for people starting pp
 |------|--------|
 | **Total Value** | **$9550**  including ~$1000 worth of extras |
 | **Depreciation** | **-$3000ish?** |
-| **Sell Price** | **$6kk ish? Open to negotiation** |
+| **Sell Price** | **$6k ish? Open to negotiation** |
 
 | Item | Price  |
 |------|--------|
