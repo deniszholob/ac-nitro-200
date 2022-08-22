@@ -24,7 +24,7 @@ Selling everything included in the table below => perfect for people starting pp
 ## Price Breakdown
 | Item | Price  |
 |------|--------|
-| **Total Value** | **$9550**  including ~$1000 worth of extras |
+| **Total Value** | **$9600**  including ~$1000 worth of extras |
 | **Depreciation** | **-$3000ish?** |
 | **Sell Price** | **$6k ish? Open to negotiation** |
 
@@ -58,4 +58,5 @@ Selling everything included in the table below => perfect for people starting pp
 | [Mixing Bottle](https://www.amazon.com/gp/product/B0012TZ2CE) | $10 |
 | [Hose Bender](https://www.amazon.com/gp/product/B07ZY86LP2/) | $5 |
 | [Lipo Charger (imax b6ac)](https://www.amazon.com/dp/B07568DSCP) - Can sell without | $45 |
-| Aspen Gradient II 22m Wing For Kiting | $300 |
+| Aspen Gradient II 22m Wing For Kiting + bag | $300 |
+| Large Pumpkin wing bag | $50 |
