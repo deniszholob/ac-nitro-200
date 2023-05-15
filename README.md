@@ -1,4 +1,4 @@
-# [Air Conception Nitro 200](https://www.adventuretoystore.com/nitro-200-paramotor/) eStart/No Clutch + Extras ~$6k ish?
+# [Air Conception Nitro 200](https://www.adventuretoystore.com/nitro-200-paramotor/) eStart/No Clutch + Extras ~$6k negotiable
 <img src="https://github.com/deniszholob/arduino-led/blob/master/images/led-ac-demo-purple.jpg?raw=true" width="260" /> <img src="https://github.com/deniszholob/arduino-led/blob/master/images/led-ac-demo-flight.jpg?raw=true" width="260" />
 
 * Bought from Four Winds PPG/[AviatorPPG](https://aviatorppg.com/)  
