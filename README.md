@@ -3,7 +3,7 @@
 
 * Bought from Four Winds PPG/[AviatorPPG](https://aviatorppg.com/)  
 * Overall a great unit to fly with imo, I had it since Jan, 2018 flying on and off until end of 2021.  
-* Selling b/c I am moving, want to spend some time paragliding, and maybe later get an electric motor.  
+* Selling b/c I moved, want to spend some time paragliding, and maybe later get an electric motor.  
 
 Selling everything included in the table below => perfect for people starting ppg without any gear!  
 [Pictures + Manual](https://www.dropbox.com/sh/i352ofgp8jx769w/AAC4-VPLFqLI3eLP6_hfui8Sa?dl=0)
